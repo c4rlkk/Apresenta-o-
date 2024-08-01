@@ -1,5 +1,5 @@
 ### Boas vindas ao meu perfil! ★
-Meu nome é Carolina Diniz e S.
+Meu nome é **Carolina Diniz e S.**
 
 • Estou estudando na [Alura](https://www.alura.com.br/);
 
