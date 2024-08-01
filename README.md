@@ -7,8 +7,8 @@ Meu nome é Carolina Diniz e S.
 
 • Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos.
 
-### Você pode entrar em contato comigo!! ✉️
+### Você pode entrar em contato comigo!! ☆
 
 0000112442264xsp@al.educacao.sp.gov.br
 
-@c4rlkk
+[@c4rlkk](https://github.com/c4rlkk)
